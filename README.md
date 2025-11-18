@@ -1,0 +1,1 @@
+# TriSun-Duplicate-Photo-Finder-Plus-No-Trial
